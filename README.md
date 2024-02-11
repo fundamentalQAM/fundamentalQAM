@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fund@aMentaLiQ
+- 👋 Hi, I’m @Fund&aMentaLiQ
 - 👀 I’m interested in ...all
 - 🌱 I’m currently learning .....//..<!....etc(8)
 - 💞️ I’m looking to collaborate on 
